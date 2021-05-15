@@ -1,0 +1,5 @@
+- John  Cook
+- Currently a Civil and Environmental Engineering undergraduate (minoring in Spanish) at Rice University, class of 2022
+- Research assistant in the Doss-Gollin lab for summer 2021
+- Looking for opportunities in the field or in graduate school for 2022 and beyond!
+- Email: jsc10@rice.edu / john.s.cook10@gmail.com
